@@ -1,3 +1,7 @@
+Fernanda de Souza Batista Santos
+
+fernanda.santos105@fatec.sp.gov.br
+
 # Arvores (continuação)
 ---
 
